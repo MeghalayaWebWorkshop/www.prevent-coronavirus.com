@@ -1,1 +1,1 @@
-# www.stop-coronavirus.com
+# www.prevent-coronavirus.com
